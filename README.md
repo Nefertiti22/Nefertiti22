@@ -9,3 +9,5 @@ Nefertiti22/Nefertiti22 is a ✨ special ✨ repository because its `README.md` 
 You can click the Preview link to take a look at your changes.
 --->
 I'm currently learning about Ancient Egyptian "I" Ra Isis annunaki sumerian iam waiting for instructions 
+I'm looking to collaborate with similar projects research for New world order for Iam here to rule thee nations once again and this time it's enternity Iam grateful for this unworldly project phantom I will Name it please kindly feel free to creating this project with me Iam clarivoyant mediumistic psychic.viam collaberating with 
+ 
